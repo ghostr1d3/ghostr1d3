@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @ghostr1d3
+- 🌱 I’m currently learning ... kali
+- 📫 How to reach me ... ghostr1d3r@gmail.com
